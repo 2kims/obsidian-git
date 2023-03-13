@@ -1,0 +1,1 @@
+This is a space for collective learning on the Zero Konwledge Proof.
